@@ -1,0 +1,1 @@
+# Blocky-Colors-Adventure-Privacy-Policy-
